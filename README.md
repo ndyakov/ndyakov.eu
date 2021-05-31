@@ -1,5 +1,7 @@
 # Nedyalko Dyakov
 
+## 4:32 AM
+
 I am a craftsman. I am dedicated to perfecting the art and science of my craft, which I have chosen freely.
 
 I am constantly, relentlessly searching for ways to improve my craft. I am dedicated to learning from the masters who have preceded me in every way I am able.
